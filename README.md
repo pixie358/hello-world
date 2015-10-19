@@ -1,2 +1,3 @@
 # hello-world
 First step
+Up at 0630 this morning to do the prep that I should have really done last night...some things take a while to change...
